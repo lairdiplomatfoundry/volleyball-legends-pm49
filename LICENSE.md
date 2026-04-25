@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://lairdiplomatfoundry.github.io/volleyball-legends-pm49/ ) |
  |---------------------|----------------------:|
 
 
